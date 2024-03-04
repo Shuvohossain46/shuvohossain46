@@ -86,7 +86,7 @@ Skills: Digital Marketing | Podcast Marketing | Facebook Ads | YouTube Marketing
 
 - 🔭 I’m currently working on Upwork 
 - 🌱 I’m currently learning Programming 
-- 👯 I’m looking to collaborate on Github 
+- 👯 I’m looking to collaborate on GitHub 
 
 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/Shuvohossain46)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/facebook.svg' alt='facebook' height='40'>](https://www.facebook.com/https://www.facebook.com/profile.php?id=100091952063930)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/icloud.svg' alt='website' height='40'>](www.uniqueglobalservice.com)  
