@@ -1,7 +1,7 @@
 ![I am a Profesonal Android App Developer | Digital Marketing Specialist | Podcaster Marketer](https://media.licdn.com/dms/image/v2/D5616AQFclOYqBgCBlA/profile-displaybackgroundimage-shrink_200_800/profile-displaybackgroundimage-shrink_200_800/0/1735395404004?e=2147483647&v=beta&t=2reafjBpQENmYToub5dLuW3uZY8U9Lg2vhcdPjXjRQg)
 
 # Hi there 👋, I am Shuvo Hossain
-#### I am a Digital Marketing specialist professional podcast promoter and SEO expert.
+#### I am a Profesonal Android App Developer | Digital Marketing Specialist | Podcaster Marketer
 
 Hello! I’m Md. Shuvo Hossain, a skilled professional with 4 years of experience working in the local and international marketplace. My expertise spans Android app development, social media advertising, and podcast marketing, allowing me to deliver impactful and tailored solutions for clients worldwide.
 
