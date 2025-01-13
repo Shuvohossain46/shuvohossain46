@@ -1,14 +1,11 @@
-![I am a Digital Marketing specialist professional podcast promoter and SEO expert.](https://scontent.fdac31-2.fna.fbcdn.net/v/t39.30808-6/431345810_318453301229736_1368837657536166006_n.png?stp=dst-png_p180x540&_nc_cat=108&ccb=1-7&_nc_sid=5f2048&_nc_eui2=AeGrZ_d-ODos075JuAxn17UdmAuPtem-NH2YC4-16b40feDXw-Ug9LwLa6vbs_9s2HxlLmqLWOOMoVbOpDyzZ1WB&_nc_ohc=rnnhvLe4RnMAX9aPEfh&_nc_ht=scontent.fdac31-2.fna&oh=00_AfCL2kA8OkmqO32-b76T5a_JGik5rwV532kBwT-WvATkaQ&oe=661248EE)
+![I am a Profesonal Android App Developer | Digital Marketing Specialist | Podcaster Marketer](https://scontent.fdac31-2.fna.fbcdn.net/v/t39.30808-6/431345810_318453301229736_1368837657536166006_n.png?stp=dst-png_p180x540&_nc_cat=108&ccb=1-7&_nc_sid=5f2048&_nc_eui2=AeGrZ_d-ODos075JuAxn17UdmAuPtem-NH2YC4-16b40feDXw-Ug9LwLa6vbs_9s2HxlLmqLWOOMoVbOpDyzZ1WB&_nc_ohc=rnnhvLe4RnMAX9aPEfh&_nc_ht=scontent.fdac31-2.fna&oh=00_AfCL2kA8OkmqO32-b76T5a_JGik5rwV532kBwT-WvATkaQ&oe=661248EE)
 
 # Hi there 👋, I am Shuvo Hossain
 #### I am a Digital Marketing specialist professional podcast promoter and SEO expert.
 
+Hello! I’m Md. Shuvo Hossain, a skilled professional with 4 years of experience working in the local and international marketplace. My expertise spans Android app development, social media advertising, and podcast marketing, allowing me to deliver impactful and tailored solutions for clients worldwide.
 
-Hi, I am a Digital Marketing specialist and professional Podcast Promoter. I have more than 6 years of experience in the local and International marketplace. my best skills are Podcast Promotion, YouTube Channel Promotion, and Search engine optimization(SEO). I have high knowledge and Skills in Digital marketing, I have a Big Team. and I try to Service all Client's work best. Please test my service.
-
-My authentic service is 100% genuine and organic We provide our services until you are satisfied with your work.
-
-Skills: Digital Marketing | Podcast Marketing | Facebook Ads | YouTube Marketing | SEO expert
+Skills: 🎯 Android App Developer | 📈 Paid Social Media Marketer | 🎙️Podcast Marketing Specialist
 
 - 🔭 I’m currently working on Upwork 
 - 🌱 I’m currently learning Programming 
