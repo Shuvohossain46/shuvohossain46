@@ -1,4 +1,4 @@
-![I am a Profesonal Android App Developer | Digital Marketing Specialist | Podcaster Marketer](https://scontent.fdac31-2.fna.fbcdn.net/v/t39.30808-6/431345810_318453301229736_1368837657536166006_n.png?stp=dst-png_p180x540&_nc_cat=108&ccb=1-7&_nc_sid=5f2048&_nc_eui2=AeGrZ_d-ODos075JuAxn17UdmAuPtem-NH2YC4-16b40feDXw-Ug9LwLa6vbs_9s2HxlLmqLWOOMoVbOpDyzZ1WB&_nc_ohc=rnnhvLe4RnMAX9aPEfh&_nc_ht=scontent.fdac31-2.fna&oh=00_AfCL2kA8OkmqO32-b76T5a_JGik5rwV532kBwT-WvATkaQ&oe=661248EE)
+![I am a Profesonal Android App Developer | Digital Marketing Specialist | Podcaster Marketer](..)
 
 # Hi there 👋, I am Shuvo Hossain
 #### I am a Digital Marketing specialist professional podcast promoter and SEO expert.
